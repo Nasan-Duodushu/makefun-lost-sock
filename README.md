@@ -1,0 +1,2 @@
+# makefun-lost-sock
+Entry for make.fun u-eager-stork-81-9647-funniest-lost-sock-status-update-4b1fa3ce
